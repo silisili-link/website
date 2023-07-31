@@ -13,7 +13,7 @@
 > 包含 iOS单页版客户端 和 Android 客户端，下载 app 不迷路，强烈建议下载！！
 
 
-## AGE动漫 · 百度官方贴吧
+## 嘶哩嘶哩动漫 · 百度官方贴吧
 > [https://tieba.baidu.com/f?kw=%E5%98%B6%E5%93%A9%E5%98%B6%E5%93%A9&fr=index](https://tieba.baidu.com/f?kw=%E5%98%B6%E5%93%A9%E5%98%B6%E5%93%A9&fr=index)
 >
 > 有问题，可以在贴吧进行反馈
