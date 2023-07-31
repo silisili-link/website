@@ -8,7 +8,7 @@
 
 
 ## 嘶哩嘶哩动漫 · APP下载地址
-> [https://www.silisilifun.com/app/silisili/](https://silisili.lanzouw.com/iehST13dv50j?ref=github)
+> [https://www.silisilifun.com/app/silisili/](https://www.silisilifun.com/app/silisili/?ref=github)
 >
 > 包含 iOS单页版客户端 和 Android 客户端，下载 app 不迷路，强烈建议下载！！
 
