@@ -1,3 +1,8 @@
+## 嘶哩嘶哩动漫 · 最新网址（2023.09.11 最后更新）
+> 新版：[https://www.silisili.link](https://www.silisili.link?ref=github)
+> 这看起来就是个简单的搜索导航！
+> 点击logo看看
+> 本期暗号：silisilinb(截止9-11有效）
 ## 嘶哩嘶哩动漫 · 最新网址（2023.08.01 最后更新）
 > 新版：[https://www.silisilifun.com](https://www.silisilifun.com?ref=github)
 >
