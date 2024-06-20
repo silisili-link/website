@@ -16,7 +16,7 @@
 
 
 ## 嘶哩嘶哩动漫 · APP下载地址
-> [蓝奏云](https://silisili.lanzouw.com/iehST13dv50j?ref=github)
+> [蓝奏云](https://www.123pan.com/s/cySeVv-ZZEI.html)
 >
 > 包含 iOS单页版客户端 和 Android 客户端，下载 app 不迷路，强烈建议下载！！
 
